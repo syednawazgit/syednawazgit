@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Syed Currently working as a Software Developer Intern
+Hey , I'm Syed Currently working as a Software Developer Intern
 
 
 ## 🌐 Socials:
